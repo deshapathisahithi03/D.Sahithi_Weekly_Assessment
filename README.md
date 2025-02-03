@@ -1,1 +1,1 @@
-# D.Sahithi_Week1_Assessment
+# D.Sahithi_Weekly_Assessment
